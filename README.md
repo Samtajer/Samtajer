@@ -1,6 +1,8 @@
-- Hi, I’m @Samtajer - Sam is a short version of my first name _Saman - given to me by my Parents in the Day I was - Born/Birth-Mother-land - "PERSIA" - Now "IRAN".
-- SAM - Was given to me more or less by my "FRIENDS" in Europe Starting, and NONSTOP in USA became literally my first Name and so more or less my last name.
-- the Short Version of my Last name is "TAJER" meaning 'Exporrt-&-Inport Buisnessman' - fULL Version "HAJ ALI TAJER".  
+- Hi, I’m @Samtajer - (Sam) is a short version of my first name _(Saman)-Mening__"Prosperity" -
+- (SAMAN(>> - given to me by my Parents in the Day I was Born- IN -Birth-Country--Mother_land - "PERSIA" - Now "IRAN" &_Language__Farsi = Persian. --
+-- (SAM(>> - Was given to me more or less by my "FRIENDS" in Europe Starting originated in Germany, and in USA literally my first "Name" became literally, --
+- and so more or less is the same with my last name, the Short Version of my Last name is "TAJER" meaning 'Export__Inport_Buisness-man' - fULL Version "HAJ ALI TAJER".
+- So my Full__Name is - "Saman, Haj Ali Tajer" -, but for the inconvenience for/to others and myself, being aksed of my Full name in diverse places and the repeatedly Spilling of my Long mostly last Name is better to use the Convenience of the Shorter Version of my Name "Sam |an, Haj Ali| Tajer". 
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
